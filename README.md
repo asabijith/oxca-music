@@ -18,7 +18,7 @@ If you are searching for **Oxca Music download**, **Oxcamusic app**, or **free m
 
 Stay updated with latest versions, features, and updates:
 
-👉 https://t.me/loxcamusic  
+👉 https://t.me/oxcamusic  
 
 ---
 
@@ -52,8 +52,8 @@ music streaming app Android, Oxca Music APK, download Oxcamusic
 ## 🌐 Official Links
 
 - Website: https://www.oxcamusic.t-rex.site  
-- Telegram: https://t.me/loxcamusic  
-- APK Download: https://www.oxcamusic.apk  
+- Telegram: https://t.me/oxcamusic  
+- APK Download: https://www.oxcamusic.apk.com 
 - APKPure: https://apkpure.net/p/com.example.aaamusic  
 - APKPure Mirror: https://apkpure.com/p/com.example.aaamusic  
 
